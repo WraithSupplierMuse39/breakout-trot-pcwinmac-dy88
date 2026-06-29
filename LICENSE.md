@@ -1,4 +1,4 @@
-# 
+# Profissional breakout trading bot scripts for Mac OS | Elite breakout trading bot scripts for PC Windows. Featuring pools de liquidez DEX and API de exchange descentralizada — optimized for maximum performance.
 
 
 
